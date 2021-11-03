@@ -1,5 +1,5 @@
 ## PET WEBSITE
-THe best friend a man can ever have,4/11/2021
+The best friend a man can ever have,4/11/2021
 
 By Kubai Augustine Mweteri and Njeri Gathuku
 
